@@ -6,7 +6,7 @@
 
 ​                 **SCP-2295**
 
-![处于非活跃状态的SCP-2295](https://scp-wiki.wdfiles.com/local--files/scp-2295/kairos.jp"处于非活跃状态的SCP-2295")
+![处于非活跃状态的SCP-2295](https://scp-wiki.wdfiles.com/local--files/scp-2295/kairos.jpg)
 
 ***项目等级：***
 

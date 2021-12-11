@@ -57,4 +57,4 @@ SCP-2295-1可成功担负起原有器官的一切功能，尽管这一现象违�
 
 详情见网页：[SCP-2295](https://scp-wiki.wikidot.com/scp-2295)
 
-或者见主站：[SCP Foundation](
+或者见主站：[SCP Foundation](https://scp-wiki.wikidot.com/)
